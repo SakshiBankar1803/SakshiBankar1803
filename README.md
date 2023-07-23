@@ -10,7 +10,7 @@
 
 - 📫 How to reach me **sakshibankar092@gmail.com**
 
-- ⚡ Fun fact **My weak point it's My STRONG Point.**
+- ⚡ Fun fact **My weak point It's My STRONG Point.**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
